@@ -1,5 +1,3 @@
-# ChronoPay Privacy Policy
-
 # Privacy Policy for ChronoPay
 
 **Effective date:** 3/1/2026  
